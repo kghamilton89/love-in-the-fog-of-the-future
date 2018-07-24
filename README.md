@@ -19,6 +19,6 @@ Upon completion this document will be donated to the library so that future read
 ## Status
 
 Language | Complete
---|:--:
+:--:|:--:
 Russian | :x:
 English | :x:
