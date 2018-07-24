@@ -15,3 +15,10 @@ Despite my best efforts to find a digital copy to consume, I came up empty-hande
 This repository is the result. My hope is that others who travel a similar literary path find this transcription and translation with far less effort than that which was required to create them.
 
 Upon completion this document will be donated to the library so that future readers can access a digital transcription or translation directly from the library. The text will also be hosted here for those unable to journey to Russia.
+
+## Status
+
+Language | Complete
+--|:--:
+Russian | :x:
+English | :x:
