@@ -20,5 +20,5 @@ Upon completion this document will be donated to the library so that future read
 
 Language | Complete
 :--:|:--:
-Russian | :x:
+Russian | :heavy_check_mark:
 English | :x:
