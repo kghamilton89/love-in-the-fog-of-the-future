@@ -66,7 +66,7 @@ Knowing full well that tomorrow he was scheduled to undergo a detailed thought r
 "However," Jerry caught himself, "people are unable to truly unable control what surfaces in their consciousness." Convinced that to continue on his spree made no sense, Jerry decided to cease his criminal activity, and at the very least see Donny today. "What will be will be," he recalled the long-forgotten proverb and, in the heat of despair, rushed along the moving street.
 
 From that moment, a flurry of events began to unfold with dizzying speed. As soon as the street turned around the nearest corner, Jerry passed through a checkpoint of the psycho-control board. Upon doing so, the inexpressibly awful occurred. The gauge reading the presence of a criminal unbalance shot to an unprecedented level. Vibrating tentacles made an extraordinary leap to the top and, emitting a glowing stream of air, formed a radiant halo above Jerry's head, reminiscent of the radiance
-of some ancient Christian martyr. There was a sharp sound, which was so powerful several people nearby fell to the floor. An old man, obviously not from the first rejuvination, convulsively jerked his legs trying to blow air through his ears and restore the disturbed auditory balance.
+of some ancient Christian martyr. There was a sharp sound, which was so powerful several people nearby fell to the floor. An old man, obviously not from the first rejuvenation, convulsively jerked his legs trying to blow air through his ears and restore the disturbed auditory balance.
 Street traffic stopped. The Servant of Public
 Security on duty came towards Jerry and put his hand up Jerry's shoulder, inviting him to follow.
 
