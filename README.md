@@ -1,5 +1,7 @@
 # Любовь в Тумане Будущего: История Одного Романа в 4560 Году
 
+> Please note that as of March 2024, I've resumed work on this project.
+
 ![](./images/cover.png)
 
 ## Overview
