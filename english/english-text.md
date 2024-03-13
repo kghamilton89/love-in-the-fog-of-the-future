@@ -12,4 +12,4 @@ Worry was a state almost unknown to the People since the power of the Great Repu
 
 Criminals no longer existed, since crimes were discovered before they were committed, and humanity, freed from everything evil and illegal, intoxicated with brotherly love, enthusiastically devoted itself to fruitful work within the framework of self-improvement.
 
-After just a few generations, the People reached the pinnacle of prosperity. A whole series of inventions of social innovations, wisely used, rendered earthly existence of the People to that of the biblical story of Genesis. 
+After just a few generations, the People reached the pinnacle of prosperity. A whole series of inventions of social innovations, wisely used, rendered earthly existence of the People to that of the biblical story of Genesis. Universal harmony reigned supreme. A detailed study of the subconscious, as belonging to the group and the individual, allowed for the creation of an objective truth, upon the foundation of which the "Laws of Objective Reason" were created.
