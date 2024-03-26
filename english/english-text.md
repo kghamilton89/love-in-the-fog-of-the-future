@@ -23,3 +23,13 @@ As the street upon which they were carrying on reached the Museum of Humanity, w
 After their first meeting, it somehow happened that they continued to meet each day. Jerry suddenly discovered in himself the greatest interest in all the details of religious fanaticism, the latest outbreak of which engulfed the people of the XXI century. Naturally, he could most readily get an answer to his requests in the Museum of Humanity, where he went daily each morning and where, under Doni's direct supervision, he comprehended the full horror of Christian penance, and examining the hood of any monastic order, he got a real idea of its complete dissimilarity with the epitrachelion in the vestments of a clergyman.
 
 Thus passed four days.
+
+During this time Jerry, with that artificially sharpened memory of his, which was constantly cultivated by his contemporaries and which he had already mastered perfectly, achieved a complete assimilation of the history of the gradual development of religious beliefs, starting from prehistoric times and ending with the XXI century, when a brilliant discovery in the field of the biology of artificial cultivation of a living cell made man the Creator of Nature. From that moment on, the naive God myth was destroyed once and for all, never to be revived.
+
+Jerry had learned this all very well over the course of four days, and his next appearance at the Museum of Humanity on the fifth day might have surprised anyone, but not Doni. She smiled at him no less affectionately than the day before, and then, when they hunched over in order to search some details amongst the religious rags, their lips suddenly touched in an intoxicating kiss. It probably would have lasted a little longer if the ever-increasing rustle in the control apparatus had not made them jump away from each other in fright. Suddenly the noise stopped. It was the device that deteriorated, unable to withstand the tension of their passion.
+
+They were saved.
+
+Nevertheless, even that noise so vaguely detected by the device still attracted the attention of the Servant of Public Safety. Jerry and Doni, who found themselves hiding now, could hear him, first approaching the damaged device with its vibrating tentacles hanging helplessly, then bending over the wireless phone and throwing it into space:
+
+"Another damage to the low-voltage control device. A replacement is needed."
