@@ -79,3 +79,45 @@ At the first words of that terrible voice, repeated by the walls in countless in
 The voice from above continued:
 
 "An additional analysis of the state of your body indicates increased nervousness, exceeding all the limits set in our time. The reason for this is your excessive puberty. If you do not voluntarily agree to marry, the Council of the World Mind will be forced to isolate you from the rest of humanity, bearing in mind your psychological imbalance. In The Name Of The Public Good! Answer me!"
+
+By nature, Geri was not, in fact, a pessimist, but such an unexpected conclusion of the verdict exceeded his most optimistic hopes. In a fit of grateful delight, he jumped to his feet and, stretching out his arms, exclaimed:
+
+"You make me the happiest of people! Oh, dear Doni, how good it will be for us!"
+
+A voice from above interrupted him:
+
+"Calm down, don't make noise: excessive noise will only bring you suffering; You should know that everything related to the birth and upbringing of the future generation is under the direct jurisdiction of the Council of Public Welfare; no marriage can be concluded without its sanction; and meanwhile it is established that Doni and you, according to your own according to the psychophysical outlines of your inner life, you are completely unsuitable for each other; this circumstance makes your marriage impossible."
+
+Geri's sprawled body remained silent for several moments. Then a groan of inhuman agony, vibrating plaintively in the air, rose up.
+
+The voice continued:
+
+"You don't realize how great the power of your passion is. There are only a few women in the entire space of the Great Republic who are able to organically recognize you. The one who is destined to be your wife lives on the 6C-D Russian Lowlands. You will have to fly across the ocean. You'll see her tomorrow. Your psychophysical potentials are almost identical. The offspring will be quite balanced."
+
+A cry of wild animal pain shook the air. Jeri ran, not remembering himself, sobbing and laughing at the same time. When he reached the nearest wall, he threw himself on the ground in exhaustion.
+
+The voice from above continued:
+
+"No noise. You might think that you are a man of the XX century. Don't worry. It's inevitable. You will be accompanied to the projectile by a Public Security Servant. When you fly over the ocean, you will be met by another one. He will have all the instructions. Answer me, do you agree?."
+
+Geri gritted his teeth. The words of supplication were asking for heaven. But he knew that by his silence he was throwing an unheard-of protest against the existing laws of "World Truth." And he was silent, because at that moment, thanks to the unequal marriage of his parents, the male will prevailed in him.
+
+And in response to this challenge, a voice from above thundered:
+
+"The laws of World Truth are unshakable. The Truth is in the Mind! Accustom yourself to this thought. The Truth is in the Mind!"
+
+The hundred-voiced echo picked up in different ways:
+
+"The truth is in the Mind! The Truth is in the Mind! The Truth is in the Mind!"
+
+A wild sight for the XLVI century was represented by this man with an insanely distorted face, running away from himself in the midst of a gray void without beginning and without end.
+
+"The truth is in the Mind!" sounded somewhere inside him, fell from somewhere above and, hitting the brain, bounced against the walls, streaking them with zigzag lines: "The truth is in the Mind!"
+
+Now the very air seemed to glow: "The truth is in the Mind! The Truth is in the Mind!"
+
+A fiery tornado circled and engulfed the unfortunate man.
+
+To the question: "Are you ready?" Jhary could only mumble an inarticulate, "yes."
+
+His will was broken.
