@@ -80,7 +80,7 @@ The voice from above continued:
 
 "An additional analysis of the state of your body indicates increased nervousness, exceeding all the limits set in our time. The reason for this is your excessive puberty. If you do not voluntarily agree to marry, the Council of the World Mind will be forced to isolate you from the rest of humanity, bearing in mind your psychological imbalance. In The Name Of The Public Good! Answer me!"
 
-By nature, Geri was not, in fact, a pessimist, but such an unexpected conclusion of the verdict exceeded his most optimistic hopes. In a fit of grateful delight, he jumped to his feet and, stretching out his arms, exclaimed:
+By nature, Jerry was not, in fact, a pessimist, but such an unexpected conclusion of the verdict exceeded his most optimistic hopes. In a fit of grateful delight, he jumped to his feet and, stretching out his arms, exclaimed:
 
 "You make me the happiest of people! Oh, dear Doni, how good it will be for us!"
 
@@ -88,7 +88,7 @@ A voice from above interrupted him:
 
 "Calm down, don't make noise: excessive noise will only bring you suffering; You should know that everything related to the birth and upbringing of the future generation is under the direct jurisdiction of the Council of Public Welfare; no marriage can be concluded without its sanction; and meanwhile it is established that Doni and you, according to your own according to the psychophysical outlines of your inner life, you are completely unsuitable for each other; this circumstance makes your marriage impossible."
 
-Geri's sprawled body remained silent for several moments. Then a groan of inhuman agony, vibrating plaintively in the air, rose up.
+Jerry's sprawled body remained silent for several moments. Then a groan of inhuman agony, vibrating plaintively in the air, rose up.
 
 The voice continued:
 
@@ -121,3 +121,41 @@ A fiery tornado circled and engulfed the unfortunate man.
 To the question: "Are you ready?" Jhary could only mumble an inarticulate, "yes."
 
 His will was broken.
+
+### Chapter Four
+
+As he approached the projectile with the Servant of Public Safety, Jerry was mentally aware of everything that had happened. It was all over for him. He couldn't fight against what was inevitable. The consciousness of his powerlessness and the unusual smell of an already married man drove him into a quiet frenzy. He was ready to bite himself and others. He recalled with disgust the circumstances under which he, still an unmarried bachelor, was vaccinated with a "married smell". The chemical composition of the "Room" artificially introduced into his body produced a reaction, making him forever a married man in the eyes of others. With the strictness of morals that prevailed among his contemporaries, Jerry could consider himself quite guaranteed that he would never have to cheat with anyone. A small but very solid precaution on the part of the Council of the World Mind! Jerry remembered with an ironic half-smile how in ancient times the same duties were performed by small, easily removable wedding rings. The naive but happy childhood of mankind!
+
+As they approached the projectile, Jerry wanted to know some details of the upcoming trip. The servant of Public Safety kindly satisfied his curiosity.
+
+“Yes. He will fly completely alone, since the imbalance of his internal impulses poses a known danger to the rest of the passengers. What? Was this the first time he had to use a projectile? After all, this is a common way of traveling a long distance. That's right. The projectile is designed according to the principle of weightlessness. No, it is unnecessary for him to get acquainted with the mechanism. Everything will happen by itself. After the exit door is hermetically closed, the projectile will receive a boost and direction from the Anirin explosion. Silent explosions will continue in the back of the projectile, periodically, throughout the entire journey. He will have to stay on the road for three hours. When the Magnetic Platform 6C-D of the Russian Lowland attracts a projectile, a Servant of Public Safety will open the door to it. He will have further instructions. Have a good trip. Oh no! Everything related to the projectile, from the distance to the discharge force of the Anirin, is mathematically calculated correctly. There has not been a single accident in the last millennium. Be calm!"
+
+The exit door hermetically slammed shut behind the Public Security Servant, and almost immediately Jeri felt two jolts. The first one, light, barely perceptible, is under your feet: This is the projectile moving on its way. The second one, strong, shouting loudly with joy, was in the place where Geri was groping for his heart: in front of him, in an open niche of the next room, stood his charming Doni.
+
+The first moments passed in silent delight. Two pairs of eyes devoured each other in love ecstasy. Then, in a wild outburst of love, their owners found themselves in the arms of another.
+
+Three hours flew by like a wonderful dream. Kisses. Hugs. The words, full of alluring tenderness, alternated with the precision of Anirin's work. Caresses are sometimes noisier than the silent action of this explosive.
+
+"How silly he is! What audacity to think that she had forgotten him. No, she found out about everything from the evening light messages of the Council of the World Mind. Against the background of the night sky, she read about the discovery of a man with unusually criminal tendencies. It was he, her dear Geri, who had criminal tendencies. There she also found out that he was being sent to the 6C-D of the Russian Lowlands to get married. Oh, she couldn't let that happen! She managed to sneak into the shell and hide there until its departure. That's how they ended up together. How happy she is!"
+
+Imagining the Council of the World Mind in its radiance of infallibility, they couldn't help but laugh.
+
+Love has made their spirit capable of rebellion.
+
+The only time the delight of the wedding night was overshadowed by a small unpleasant incident. Donne, caressing her lover's skin with her lips, suddenly felt an unfamiliar smell. After sniffing, she was convinced that it was "the smell of a married man." She jumped away from Geri in horror.
+
+"Are you really married already?"
+
+Jerry began to talk in detail and convincingly about the reasons for such a premature phenomenon. But before he had finished, an unusually long kiss deprived him of the opportunity to continue his narrative, thereby destroying, this time unsuccessful, the event of the Council of the World Mind.
+
+### Chapter Five
+
+Among the millions of happy humanity who believed that "Truth is in the Mind," at the memorable hour of the arrival of the projectile, there was one person who did not at all suspect what a severe moral ordeal he would now have to undergo. It was a Servant of Public Safety 6C-D of the Russian Lowlands.
+
+When he opened the shell door to let Jerry out, he didn't think about it at all.
+
+Having discovered the annoying fact of the presence of a woman, about whom not a word was said in the instructions of the Council of the World Mind, the Servant of Public Security decided not to notice the woman.
+
+Probably, any other Servant of Public Safety would have done the same in his place.
+
+But the man did not go without the woman. And when the invitations from the Servant of Public Security became more insistent, he loudly announced that his name was Jerry and that this woman was his wife and her name was Doni.
