@@ -183,3 +183,81 @@ But he decided to stay in his post until the end. That's why he told Jerry and D
 Until further orders from the Council of the World Mind, you will have to isolate yourself on the seashore. To do this, you will be provided with an aircraft of a close direction. Your request for clemency will be referred to the Council of the World Mind. Come on!
 
 Then, half an hour later, after sending Jerry and Doni to their place of seclusion, he told the Council of the World Mind about everything that had happened. He ended his report with a request for his resignation, motivating her with a desire to rest and be treated at the Psychiatric Plant of Mankind. His request was respected. Thus ended his career as a Servant of Public Security 6C-D of the Russian Lowlands, who, by force of circumstances, lost confidence in the infallibility of the Council of the World Mind.
+
+### Chapter Six
+
+In the XLVI century, all coastal strips of the globe were turned into wonderful tropical gardens. Thanks to artificially directed warm water and air currents, it was possible to instill an unprecedented flora in terms of luxury of colors and sizes. During the six non-working days of the week, people of the XLV1 century spent their time here in reasonable pleasures, not being connected with urban life in any way. On the seventh day, everyone usually hurried to the city, firstly, in order to ensure the welfare of mankind with their hour-long work, and secondly, to give an account of the past week by revealing their thoughts to the Rams apparatus. Thus, the gardens of the coast on this day became completely deserted. And since Jerry and Doni got here on the seventh day, they could quite enjoy the charm of solitude.
+
+It can't be said that it was unpleasant for them.
+
+On the contrary, completely absorbed in their feelings for each other, they found extraordinary pleasure walking through the fabulously beautiful garden, so harmoniously merging with their wonderful experiences. Wandering along the paths of golden gravel, under the shadow of giant flowers forming a swaying carpet of colors above their heads, intoxicated with each other and the scent of the surrounding air, they seemed to forget about everything that did not make sense in their present. Sometimes exchanging a few meaningless words, they found in the intonations of the speaker's voice the fullness of their happiness.
+
+Only once did they see the shadow of a man at the end of the alley, who immediately disappeared at the sound of their footsteps. But this circumstance sobered them up to such an extent that they remembered the daily portion of food calories. Going to the nearest flower table, they took out one pill each and swallowed it in silence. After that, they almost simultaneously came up with the same idea. It seemed to them that the swallowed pills seemed to bring some kind of dissonance into the world of happiness, where they got into, wound up by love. And almost immediately both felt the watchful eye of the Council of the World Mind upon them: this was already becoming unpleasant and creating some inevitable prospects in the future. Doni was a balanced woman in her own right, but under the influence of all that had happened, the sensitivity of perception that has been characteristic of all women since ancient times became acute in her. Therefore, she was the first to attack the idea of death. Only death can unite them forever. No Council of the World Mind can then dissolve their marriage. Jhary, after thinking a little, quite agreed with Doni's opinion, finding it quite logical.
+
+Thus, they came to the decision to die. But to die in the XLVI century, without the knowledge of the Council of the World Mind, was not so easy.
+
+One by one, they had to discard the supposed methods of self-mortification. In addition, they constantly had to take into account the fact of their stay in Coastal Recreation Gardens, where there were absolutely no tools of self-destruction.
+
+Suddenly, Jerry, casually glancing at the sea, came up with an idea, obviously ridiculous, but which Doni, in the dazzle of marital obedience, found excellent. They decided to drown themselves.
+
+Having climbed a fairly high hill overlooking the sea, they merged their mouths in the "eternal kiss of death", after which Jerry made a light leap forward and, clutching Doni in his arms, rushed down to meet the Desired death.
+
+However, nothing terrible happened. The water, like liquid jelly, gently accepted their bodies, and then, having sprung out, left them to finish the "eternal kiss of death" on its surface.
+
+Obeying the law of the variability of earthly phenomena, Jerry was eventually forced to tear himself away from Dona's lips. He felt like a terrible idiot in the most ancient sense of the word.
+
+How could he forget that the water in all coastal strips was artificially compacted by the introduction of sealing gels. In the name of Public Safety! Soaked, but completely unharmed, they climbed ashore.
+
+Both were embarrassed by their failure. The death wish took on nightmarish forms for both of them.
+
+They - the free people of the XLVI century - felt themselves slaves to the laws of Inevitability!
+
+After looking guiltily into each other's eyes, they decided to repeat the "kiss of death" they had begun on land. The kiss lasted an unusually long time, but still could not bring with it the desired death.
+
+Then Doni, in whom, apparently, a woman of former times was waking up, suddenly acquired an unambiguous cunning. Leaning into Jerry's ear, she shared her plan with him. At first, Jerry thought this plan was a monstrous betrayal, but then, after thinking about it a lot, he came to the conclusion that it was only a "Great Sacrifice of Love." The plan was extraordinarily simple and consisted in cheating on each other with someone and thus earning death from the Council of the World Mind. Under the existing laws of strictly reasonable monogamy, the punishment of death for such an offense was inevitable.
+
+Jerry and Doni joined their mouths in a last farewell kiss and, courageously swallowing the tears that were coming, shook hands firmly, in the ancient way. And then, turning their backs to each other, they walked along the shore in opposite directions.
+
+Suddenly, a terrible gust of wind knocked both of them off their feet and sprawled on the ground. Both of them felt as if they had been slammed down by something heavy. As soon as they were able to get to their feet, they rushed towards each other in a fit of burning anxiety.
+
+But no. Both were completely unharmed, and the restored balance of the air sphere still threw a veil of its aromas over them. The nature around seemed invariably beautiful.
+
+Jerry and Doni, repeating the kiss of farewell again, this time less confidently, went their separate ways again.
+
+Walking along the shore, Jerry thought that their venture, after all, was not so easily feasible. As a last resort, they may have to resort to physical force. It will be especially difficult for Doni. And what will happen to them if one of them does his job and the other does not?
+
+Full of doubts tormenting him, Jerry was slowly moving forward when he suddenly noticed something surprisingly strange.
+
+A wide, dark strip ran far from the sea and, forming a semicircle, crashed into the shore, leaving a wide footprint on the sand and disappearing into the thicket of vegetation, as if encircling the place where Jerry and Doni were in an enchanted circle.
+
+Approaching this dark strip crossing his path, Jerry thought that it was probably a moral warning to him from the Council of the World Mind. He decided to leave an obstacle behind him in one leap. The jump was made, but it was not possible to jump over the barrier. Having hit some Invisible wall, Jerry was very indelicately thrown back. Getting to his feet and rubbing the bruised places, he was forced to come to the very sad conclusion that people of the XLVI century, although rare, still tend to experience physical pain.
+
+Examining the surface of the invisible wall, he was convinced that it went high up, apparently forming a colossal transparent dome above them. It was already a very real expressed captivity!
+
+Then Jerry thought of Doni, and he wanted to make sure as soon as possible that nothing bad had happened to her. Therefore, he ran as fast as he could back to where he had just come from, and was overjoyed at the sight of Doni hurrying towards him.
+
+"Yes, she also came across a transparent smooth wall. No, she didn't jump. and that's why I only hurt myself a little bit."
+
+Thus, Jerry and Doni comprehended the reality of the XLVI century captivity.
+
+They did not have to wait long for further events.
+
+A voice from a thousand miles away, amplified by a pitaphone, powerfully pronounced its verdict.
+
+Since your attempt at a crime was so obvious that the crime can be considered already committed, the Council of the World Mind decided to put you, Jerry, and you, Doni, to death by removing air from under the dome. If you don't like this method of strangulation for some reason, you can choose another death for yourself. But you will die under the dome. Five minutes to think.
+
+Jhary and Doni exchanged happy glances. They have achieved their goal. Now death was inevitable.
+
+Doni then took over the negotiations.
+
+She proudly threw up:
+
+We agree to die under the dome. We want to die in each other's arms. But don't deprive us of the air and its aromas. To this the voice replied:
+
+Fine. Your wish will be fulfilled. A sweet sleeping poison will be injected into your dome. You will die from an excess of fragrance in the air. Death will be quick and pleasant. Get ready!
+
+Some time later, falling asleep in eternal sleep and embracing each other, Jerry and Doni could hear words that no longer interested them:
+
+Strange. You have the tastes of prehistoric people.
+
+It was the Council of the World Mind that concluded its observations on the Act of Unreasonable Death from Great Love.
