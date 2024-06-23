@@ -194,7 +194,7 @@ Then, half an hour later, after sending Jerry and Doni to their place of seclusi
 
 ### Chapter Six
 
-In the XLVI century, all coastal strips of the globe were turned into wonderful tropical gardens. Thanks to artificially directed warm water and air currents, it was possible to instill an unprecedented flora in terms of luxury of colors and sizes. During the six non-working days of the week, people of the XLV1 century spent their time here in reasonable pleasures, not being connected with urban life in any way. On the seventh day, everyone usually hurried to the city, firstly, in order to ensure the welfare of mankind with their hour-long work, and secondly, to give an account of the past week by revealing their thoughts to the Rams apparatus. Thus, the gardens of the coast on this day became completely deserted. And since Jerry and Doni got here on the seventh day, they could quite enjoy the charm of solitude.
+In the XLVI century, all coastal strips of the globe were turned into wonderful tropical gardens. Thanks to artificially directed warm water and air currents, it became possible to instill an unprecedented flora, in terms of luxury of colors and sizes. During the six non-working days of the week, people of the XLVI century spent their time here in reasonable pleasures, not being connected with urban life in any way. On the seventh day, everyone usually hurried to the city, firstly, in order to ensure the welfare of mankind with their hour-long workday, and secondly, to give an account of the past week by revealing their thoughts to the Ramsey apparatus. Thus, the gardens of the coast on this day were completely deserted. And since Jerry and Doni got here on the seventh day, they could quite enjoy the charm of solitude.
 
 It can't be said that it was unpleasant for them.
 
@@ -254,7 +254,7 @@ A voice from a thousand miles away, amplified by a pitaphone, powerfully pronoun
 
 Since your attempt at a crime was so obvious that the crime can be considered already committed, the Council of World Reason decided to put you, Jerry, and you, Doni, to death by removing air from under the dome. If you don't like this method of strangulation for some reason, you can choose another death for yourself. But you will die under the dome. Five minutes to think.
 
-Jhary and Doni exchanged happy glances. They have achieved their goal. Now death was inevitable.
+Jerry and Doni exchanged happy glances. They have achieved their goal. Now death was inevitable.
 
 Doni then took over the negotiations.
 
