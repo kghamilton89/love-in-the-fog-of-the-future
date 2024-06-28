@@ -1,6 +1,7 @@
 # Любовь в Тумане Будущего: История Одного Романа в 4560 Году
 
-> Please note that as of March 2024, I've resumed work on this project. [Support public translation](https://www.buymeacoffee.com/nevskycollective)
+> As of June 2024, this project is completed and available for free use however you see fit. [Support public translation](https://www.buymeacoffee.com/nevskycollective)
+> I plan to translate this work into French during the next 12 months.
 
 ![](./images/cover.png)
 
@@ -16,11 +17,10 @@ Despite my best efforts to find a digital copy to consume, I came up empty-hande
 
 This repository is the result. My hope is that others who travel a similar literary path find this transcription and translation with far less effort than that which was required to create them.
 
-Upon completion this document will be donated to the library so that future readers can access a digital transcription or translation directly from the library. The text will also be hosted here for those unable to journey to Russia.
-
 ## Status
 
 Language | Complete
 :--:|:--:
 Russian | :heavy_check_mark:
-English | :x:
+English | :heavy_check_mark:
+French | :x:
