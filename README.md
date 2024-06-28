@@ -1,7 +1,6 @@
 # Любовь в Тумане Будущего: История Одного Романа в 4560 Году
 
-> As of June 2024, this project is completed and available for free use however you see fit. [Support public translation](https://www.buymeacoffee.com/nevskycollective)
-> I plan to translate this work into French during the next 12 months.
+> As of June 2024, this project is completed and available for free use however you see fit. [Support public translation](https://www.buymeacoffee.com/nevskycollective). I plan to translate this work into French during the next 12 months.
 
 ![](./images/cover.png)
 
