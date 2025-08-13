@@ -1,6 +1,6 @@
 # Любовь в Тумане Будущего: История Одного Романа в 4560 Году
 
-> As of June 2024, this project is completed and available for free use however you see fit. [Support public translation](https://www.buymeacoffee.com/nevskycollective). I plan to translate this work into French during the next 12 months.
+> As of June 2024, this project is completed and available for free use however you see fit. [Support public translation](https://www.buymeacoffee.com/nevskycollective).
 
 ![](./images/cover.png)
 
@@ -15,11 +15,3 @@ After reading my favorite novel [1984](https://en.wikipedia.org/wiki/Nineteen_Ei
 Despite my best efforts to find a digital copy to consume, I came up empty-handed. Attempts to find a hard copy of the novel proved equally fruitless. I was advised to consult the tomes of the National Library where perhaps some extent copy existed. To my luck, I was able to visit the library and copy the contents of the novel directly.
 
 This repository is the result. My hope is that others who travel a similar literary path find this transcription and translation with far less effort than that which was required to create them.
-
-## Status
-
-Language | Complete
-:--:|:--:
-Russian | :heavy_check_mark:
-English | :heavy_check_mark:
-French | :x:
